@@ -1,1 +1,0 @@
-# Parcial_2_Programacion_I_Invernadero
